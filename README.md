@@ -2,7 +2,7 @@
 - 👀 I’m interested in AI, Computer Vision
 - 🌱 I’m currently learning Artificial Intellegence
 - 💞️ I’m looking to collaborate on any projects related to AI
-- 📫 How to reach me sqiyang8@gmail.com
+- 📫 How to reach me 
 - 😄 Pronouns: he
 - ⚡ Fun fact: ........
 
